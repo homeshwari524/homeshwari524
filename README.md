@@ -1,4 +1,4 @@
-# Hi there, I'm [Homeshwari] 👋
+# Hi there, I'm Homeshwari 👋
 
 ## About Me
 
